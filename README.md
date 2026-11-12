@@ -37,7 +37,7 @@ Abbottabad Campus, Pakistan
 
 Published through Amazon Kindle Direct Publishing (KDP).
 
-**Amazon Book:** [Insert your Amazon book link]
+**Amazon Book:** [[Insert your Amazon book link](https://www.amazon.com/dp/B0HR5LBM5P)]
 
 ## Copyright
 
